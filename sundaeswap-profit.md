@@ -1,5 +1,6 @@
 # 🍨 The Sweet Side of DeFi: Why SundaeSwap.org Is the Smartest Way to Earn in Web3
 
+<img width="1536" height="1024" alt="c9139fad-0287-49c6-b253-ab79d48da1ff" src="https://github.com/user-attachments/assets/bba3bb75-20e4-4957-916c-8fc2c335fdc9" />
 
 
 ---
